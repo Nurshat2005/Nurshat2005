@@ -30,9 +30,9 @@
 
 ### 📫 Связаться со мной
 
-* Telegram: [@nurshat\_dev](https://t.me/nurshat_dev)
-* Email: [your.email@example.com](mailto:your.email@example.com)
-* LinkedIn / Portfolio: *добавьте ссылку*
+* Telegram: [@nurshat\_dev](https://t.me/@Nur_0I)
+* Email: [nurdinovnurshat2005@gmail.com](nurdinovnurshat2005@gmail.com)
+
 
 ---
 
